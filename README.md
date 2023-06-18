@@ -1,3 +1,3 @@
-### Visiting Research in University of Illinois Chicago
+### Visiting scholar in University of Illinois Chicago
 
 2021.11 ~ 2022.05
